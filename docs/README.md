@@ -26,12 +26,11 @@
 
 #### **Life-Life**
 
-* Panopticon
 * Goals
 * Benefits
 * Insurance
 * Career vs. Calling 
-
+* Free Will
 
 <!-- tabs:end -->
 
